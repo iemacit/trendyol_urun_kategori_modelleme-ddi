@@ -1,0 +1,1 @@
+# trendyol_urun_kategori_modelleme-ddi
